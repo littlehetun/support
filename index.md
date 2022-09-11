@@ -1,5 +1,5 @@
-指尖任务技术支持
+技术支持
 
-指尖任务有任何问题或建议请联系
+有任何问题或建议请联系
 
-邮箱：zhijianyeah#gmail.com
+邮箱：likeyixi#gmail.com
